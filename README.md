@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **back-end projects**
 
-- 💬 About me **I'm a very positive person that loves to work in collaborative projects and bring happines and responsability to the team. I also am a perserverant and persistent on finish my work.**
+- 💬 About me **I'm a very positive person that loves to work in collaborative projects and bring happines and responsability to the team. I'm also a perserverant and persistent on finish my work.**
 
 - 📫 How to reach me **silvestro.franco19@gmail.com**
 
